@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Pedrofariaeva
-- 👀 I’m interested in Project Management
-- 🌱 I’m currently learning Planning
+- 👀 I’m interested in everything about Project Management
+- 🌱 I’m currently learning ongoing and progressive Planning
 - 💞️ I’m looking to collaborate on Project Director at organizational level
-- 📫 How to reach me, just email me at pedrofariaeva@gmail.com
+- 📫 How to reach me, just email me at pedro@trackonperformance.com
 
 
 <!---
