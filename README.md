@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Pedrofariaeva
-- 👀 I’m interested in everything about Project Management and Machine learning
+- 👀 I’m interested in everything about Construction Project Management and Machine learning
 - 🌱 I’m currently learning ongoing and progressive Planning
 - 💞️ I’m looking to collaborate on Project Director at organizational level
 - 📫 How to reach me, just email me at pedrofariaeva@icloud.com
